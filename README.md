@@ -60,7 +60,7 @@ Are you open minded?
 ### Day 4: Bukhansan & Euljiro Night   (Random day)
 
 **Morning**  
-- Hike **Bukhansan (Baegundae Peak via Bukhansanseong route)** 🥾  
+- Hike **Bukhansan (Bukhansanseong Fortress Trail)** 🥾  
   (easy scenic route with fortress walls & Seoul views, ~3–5 hrs round trip)  
 
 **Afternoon**  
