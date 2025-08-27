@@ -36,76 +36,65 @@ Are you open minded?
 
 
 
+### Day 3: Bukchon & Hongdae  
 
-Dinner at **Maple Tree House**—classic Korean BBQ in a cozy setting - Itaewon ($$$)
+**Morning**  
+- Stroll **Bukchon Hanok Village** (traditional houses, Kyoto vibes)  
+- Stop at **Cafe Onion Anguk** (traditional café + pastries)  
+- Visit **Gyeongbokgung Palace** (Night is also nice)  
 
+**Afternoon**  
+- **Hongdae**  
+- **Gyeongui Line Forest Park** walk or **Haneul Park** (green space + photos)  
+- **Acorn caricature drawing** 
+- **Don’t Lxxk Up photobooth** 📸  
+- **Hongdae Artbox** 🛍️ 
+- Lunch at  **Oreno Ramen** 🍜 (Michelin Bib Gourmand x3)  
+- **Shee Lee Doga** (traditional Korean tea café)  
+- **Koriko Café** (Ghibli-style theme)  
 
-Day 3: Bukchon Hanok Village ( Kyoto of korea!) +
-- General area like the main kyoto district + same at night
--  Gyeonbugong palace (Maybe after dark aswell ? -> book in advance)
-
-Cafes: 
-Cafe Onion (Tradional + good pastries + korean pastries)
-
-
-Day 4: Hongdae
-- Gyeogui line forest park of hanuel park
-- Hongdae main street
-- Acorn capicature ( drawing)
-- Dont lxxk up (photobooth)
-- Hongdae Artbox
-Cafes
-- Shee lee doga (Traditional korean cafe)
-- Koriko Cafe (Ghibli style)
-Food:
-Oreno Ramen (Michelin star x3)
-
-Extra day:  Gangnam
-- Bongdae temple ? (looks mid)
-- Starfield library + CEOX mall
-- Shopping
-- rainbow bridge show
-Food:
-
-	Eat KBBQ (BBQ Yul in Gangnam)
+**Night**  
+- Banpo Hangang Park Fountain Show + Ramen Picnic
 
 
-Extra Day: Inseongdong & Gwangjang ( kyoto alike)
-Cafe Cheongsudang
+### Day 4: Bukhansan & Euljiro Night   (Random day)
 
-Gwanghang market  (GO) ( Ramen lady + chocolate fish)
+**Morning**  
+- Hike **Bukhansan (Baegundae Peak via Bukhansanseong route)** 🥾  
+  (easy scenic route with fortress walls & Seoul views, ~3–5 hrs round trip)  
+
+**Afternoon**  
+- Shopping options:  
+  - **Dongdaemun (DDP + malls like Doota)** for night-market style fashion  
+  - or **The Hyundai Seoul (Yeouido)** 🛍️ for modern/luxury shopping in a huge mall  
+
+**Evening / Night**  
+- 🌙 **Cheonggyecheon Stream** night stroll (lights + calm vibe)  
+- 🍗 **Fried chicken + beer at Manseon Hof (Euljiro)** — classic *chimaek* in retro pub style  
 
 
-Shopping places:
-Doota mall
+Unsorted:
 
 Restaruants:
 Oncheonjip
 Mongtan
+Eat KBBQ (BBQ Yul in Gangnam)
+Gwangjang( Ramen lady + chocolate fish)
+Cafe Cheongsudang
 
 
+seongsu dong (pop ups)
+Walk Seoul Forest 
 
-Random
+Yongmasan mountain night view
 
-Morning:
-	•	Hike Bukhansan (Bukhansanseong is easy scenic route 
- 
-Night:
-	•	Ramen picnic at Banpo Park + fountain show
-	•	Night stroll at Cheonggyecheon Stream
-	•	Fried chicken + beer at Manseon Hof (Euljiro)
- Yongmasan mountain night view
 
- Other
-
-Day trip Sokcha & Seoraksan hike
-Day Trip Paju
+Day trip Sokcha 
 	
 
 
 
-Extra day:seongsu dong (pop ups)
-	Walk Seoul Forest 
+
 
 
 
@@ -133,6 +122,7 @@ Day 3:
 * **Morning / Midday**: Final souvenirs and last-minute exploring.
 * **Evening**: Transfer to ICN for flight back to LHR.
 
----
 
-*Ready to build out the rest of the days? Feel free to add morning, midday, and evening plans for Days 3–9!*
+Useful links:
+https://www.reddit.com/r/koreatravel/comments/1i9zzv0/a_comprehensive_list_of_good_tasting_restaurants/
+
