@@ -18,13 +18,17 @@ Are you open minded?
 - Love Locks (at the tower)  
 
 **Lunch**  
-- **Myeongdong Kyoja** 🍜 (Michelin Bib Gourmand x4; famous kalguksu & dumplings — no booking, just queue)  
+- **Myeongdong Kyoja** 🍜 (Michelin Bib Gourmand x4; famous kalguksu & dumplings — no booking, just queue)
+- Style Nanda store 🛍️
+- ALAND (Cute Korea style stuff)
+- Daiso (12 story!!! Plan your shit)
 
 **Afternoon**  
 - Itaewon Antique Furniture Street  
 - Rain Café ☕️  
 - Yeouido Hangang Park – Bike along the river  
-- Hyundai Seoul 🛍️  
+- Hyundai Seoul 🛍️
+- Olive Young
 
 **Evening** (6pm onwards)  
 - Light street food crawl at **Gwangjang Market** (keep it snack-sized)  
@@ -47,11 +51,15 @@ Are you open minded?
 - **Hongdae**  
 - **Gyeongui Line Forest Park** walk or **Haneul Park** (green space + photos)  
 - **Acorn caricature drawing** 
-- **Don’t Lxxk Up photobooth** 📸  
+- **Don’t Lxxk Up photobooth** 📸
+- BYTP photobooth📸
+- Yearbook photobooth (korean address on tiktok)
+- PIXXI yeonnam (photobooth with wooden shelves)
 - **Hongdae Artbox** 🛍️ 
 - Lunch at  **Oreno Ramen** 🍜 (Michelin Bib Gourmand x3)  
 - **Shee Lee Doga** (traditional Korean tea café)  
-- **Koriko Café** (Ghibli-style theme)  
+- **Koriko Café** (Ghibli-style theme)
+- Chung Chung (jeans)
 
 **Night**  
 - Banpo Hangang Park Fountain Show + Ramen Picnic
