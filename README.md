@@ -45,7 +45,8 @@ Are you open minded?
 **Morning**  
 - Stroll **Bukchon Hanok Village** (traditional houses, Kyoto vibes)  
 - Stop at **Cafe Onion Anguk** (traditional café + pastries)  
-- Visit **Gyeongbokgung Palace** (Night is also nice)  
+- Visit **Gyeongbokgung Palace** (Night is also nice)
+- Tongin traditional market (Exchange coin for food)
 
 **Afternoon**  
 - **Hongdae**  
@@ -60,6 +61,7 @@ Are you open minded?
 - **Shee Lee Doga** (traditional Korean tea café)  
 - **Koriko Café** (Ghibli-style theme)
 - Chung Chung (jeans)
+- Nike store to custom clothing 
 
 **Night**  
 - Banpo Hangang Park Fountain Show + Ramen Picnic
